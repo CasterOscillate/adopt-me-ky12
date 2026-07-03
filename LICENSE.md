@@ -1,4 +1,4 @@
-
+new adopt me Scripts is the best adopt me Script, featuring anti-ban and infinite resources. Safe and powerful for all your needs.
 
 
 
